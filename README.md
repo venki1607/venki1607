@@ -67,7 +67,7 @@
 
 ## Contact
 - LinkedIn: [Venkatesh Surabathula](https://www.linkedin.com/in/venkatesh-surabathula-653b661ba/)
-- Email: venkat.su96@email.com
+- Email: venkat.su96@gmail.com
 - Phone: +19803275106
 
 Feel free to reach out to discuss collaborations, opportunities, or simply to connect!
