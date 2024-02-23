@@ -66,9 +66,9 @@
     - Completed Yuva 2017-18 (Youth Leadership Program) which involves improving current youth economic management and entrepreneurship skills for nation-building.
 
 ## Contact
-- LinkedIn: [Venkatesh Surabathula](https://www.linkedin.com/in/venkatesh-surabathula/)
-- Email: venkatesh.surabathula@email.com
-- Phone: +1234567890
+- LinkedIn: [Venkatesh Surabathula](https://www.linkedin.com/in/venkatesh-surabathula-653b661ba/)
+- Email: venkat.su96@email.com
+- Phone: +19803275106
 
 Feel free to reach out to discuss collaborations, opportunities, or simply to connect!
 
